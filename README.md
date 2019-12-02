@@ -1,3 +1,3 @@
 # Kirill Scalirò
-## concept art 2a
+## Concept Art 2a
 ![foto]()
